@@ -1,3 +1,2 @@
 ## Hi there 👋
-
-![gif](https://i.pinimg.com/originals/99/74/cd/9974cd41cc1c45a1e5f664e625c2ea36.gif)
+<img width="229" height="200" alt="download" src="https://github.com/user-attachments/assets/5eb7a5e2-0d8c-4c90-89e7-9a7343d27db5" />
